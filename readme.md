@@ -2,6 +2,6 @@
 我说我要的是毕业证不是 4 级，跟我说换渠道查，
 然后一天一天往后拖
 给我来句学校放假了得节后了
-https://github.com/xgit01/sgkrank 这个链接里的
-天机阁 天眼查 六扇门应该都是
+https://github.com/xgit01/sgkrank 这个链接里的 天机阁 天眼查 六扇门应该都是
+
 ![img.png](img.png)
